@@ -1,0 +1,1 @@
+**Métodos para iGo&Tell**
